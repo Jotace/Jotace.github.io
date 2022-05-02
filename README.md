@@ -1,2 +1,2 @@
-# Página Web deJuan Calderón
+# Página Web de Juan Calderón
 Detalles de la página
